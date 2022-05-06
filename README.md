@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SilverWuchu
 - 👀 I’m interested in SILVER!!!
-- 🌱 I’m currently learning SILVER!!!
+- 🌱 I’m currently learning Identifying Silver!
 - 💞️ I’m looking to collaborate on NOTHING
 - 📫 How to reach me : https://www.youtube.com/c/silverWuchu
 
